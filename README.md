@@ -4,7 +4,7 @@
 - 💞️ I’m looking for someone to guide me to the world of illegal hacking and programming
 - 📫 Yall can reache me through my discord i am generally active there id-xgamerzone 
 - fk pronouns i just want to rule the fukin DARK web 
-- i have 0 experience if anyone can help me to show me way for my journy to this stuff hook me up in my dms discord
+- i have 0 experience if anyone can help me to show me way for my journey to this stuff hook me up in my dms discord
 - peace
 - 
 
